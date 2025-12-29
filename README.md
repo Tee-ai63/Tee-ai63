@@ -68,6 +68,6 @@ Open to collaborations, internships & remote roles
 
 Interested in FinTech, analytics, automation & business intelligence
 
-📫 Reach out via GitHub or LinkedIn (linked on profile)
+📫 Reach out via GitHub or LinkedIn www.linkedin.com/in/tess-kamau-a23708354
 
 ✨ Always learning. Always building.
